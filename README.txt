@@ -1,4 +1,12 @@
+robertvr2 credit for the changing mod
+credit to MellowFishy#7647 for the mod menu and customnames
 
-best pc mod for gorilla tag
-just use this like ur suppose to dontr go in pubs
-dont abuse
+
+
+
+
+
+
+
+
+DONT USE IN PUBLICS OTHERWISE YOU GET BANNED
